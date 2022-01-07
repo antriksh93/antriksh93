@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @antriksh93
+- 👀 I’m interested in computer science devlopment & artificial intelligence & Machine Learning
+- 🌱 I’m currently studing in Vellore Institute of Technology Bhopal
+- 📫 How to reach me -- You can't
